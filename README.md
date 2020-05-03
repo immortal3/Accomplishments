@@ -1,2 +1,2 @@
-# Certificates
-My Certificates from various platform including Coursera 
+# Accomplishments
+Certificates, Profiles, Assessments and various other accomplishments
